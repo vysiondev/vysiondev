@@ -1,1 +1,1 @@
-# i am black irl
+go get? how about you go get a life
